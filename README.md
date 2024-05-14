@@ -21,6 +21,6 @@ Se enfoca en replicar la apariencia visual de Pinterest, ofreciendo una experien
 ---Pendiente---
 
 ### Contacto
-Si te gustaría invirtarme a colaborar en un proyecto, [¡contáctame!](www.linkedin.com/in/aslebarr94)
+Si te gustaría invirtarme a colaborar en un proyecto, escríbeme por [LinkedIn](www.linkedin.com/in/aslebarr94)!
 
 
